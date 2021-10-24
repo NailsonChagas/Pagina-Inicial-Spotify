@@ -1,0 +1,1 @@
+# Cópia da antiga página inicial do Spotify
